@@ -1,0 +1,1 @@
+belum selesai hanya tugas hari senin
